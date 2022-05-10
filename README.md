@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @LynnAinsworth
+- i love cats
